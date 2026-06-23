@@ -1,4 +1,4 @@
-
+https://zerodayinstitute.netlify.app/
 # [Click here](https://wa.me/919187514600)
 # The Complete Ethical Hacking Course
 
